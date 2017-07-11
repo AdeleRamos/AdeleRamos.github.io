@@ -2,6 +2,6 @@
 
 ![Gallery](https://adeleramosbz.files.wordpress.com/2017/07/gallery-icon.jpg)
 
-## If you have suggestions, please e-mail me at adele-dot-bze-at-gmail-dot-com.
+#### If you have suggestions, please e-mail me at adele-dot-bze-at-gmail-dot-com.
 
-Looking forward to networking and collaborating via this platform.
+#### Looking forward to networking and collaborating via this platform.
